@@ -1,4 +1,4 @@
-| Legend | Sutta |
+| Legend | Suttas |
 | --------| ------- |
 | The Buddha was a prince, his Buddha’s father Suddhodana was a king | The Buddha was from a ruling class family, but he was not royalty[1] |
 
